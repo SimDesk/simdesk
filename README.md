@@ -6,10 +6,16 @@ SimDesk offers fast and affordable temporary virtual numbers for receiving verif
 
 Download Now : https://simdesk.online
 
-Supports over 100 websites and services
-Offers virtual numbers from 50 countries worldwide
-Receive messages from any number
-Affordable pricing with top-notch quality
-24/7 customer support
-Free numbers available from all supported countries
-User-friendly and beautifully designed interface with exceptional performance
+*Supports over 100 websites and services
+
+*Offers virtual numbers from 50 countries worldwide
+
+*Receive messages from any number
+
+*Affordable pricing with top-notch quality
+
+*24/7 customer support
+
+*Free numbers available from all supported countries
+
+*User-friendly and beautifully designed interface with exceptional performance
